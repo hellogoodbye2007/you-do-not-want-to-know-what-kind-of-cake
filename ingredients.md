@@ -1,0 +1,1 @@
+100 dead bugs, two huge dead tarantulas, cream, egg, flour, butter, sugar, buttermilk, baking powder, powdered sugar, vanilla extract, unsalted butter, all purpose flour, chocolate, cocoa solids

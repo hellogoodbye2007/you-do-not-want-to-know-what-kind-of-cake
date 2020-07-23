@@ -1,0 +1,1 @@
+This is how to get people to eat bugs without them realizing it, or it could be used as a punishment.
